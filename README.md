@@ -51,4 +51,4 @@ Why is Tom shorter then Jerry? :thinking:
 Im pretty sure Tom was the Cat and Jerry was the mouse. 
 Unless the mouse is literally taller than the cat.
 
-You could of course not be talking about Cat and Mouse but I'm making an assumption 
+You could of course not be talking about Cat and Mouse but I'm making an assumption.
